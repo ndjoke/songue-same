@@ -1,2 +1,3 @@
 # songue-same
-what I can say on this subject is that the musical components of a telephone should only be activated depending on where it is located
+
+Mr. Songue is able to answer in lieu of my statements, you can reach him at the following addresses: songueolivier@gmail.com & songue@pasteur-yaounde.org
